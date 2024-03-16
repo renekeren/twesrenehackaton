@@ -1,4 +1,4 @@
-# twesrenehackaton
+# twesrenehackaton 😍😍😍
 
 ## ide projek
 bot yang bisa memberi saran menyikapi sampah pale 3r
